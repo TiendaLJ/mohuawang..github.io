@@ -5,7 +5,7 @@
 
 网站域名
 
-![Image text](https://imgur.com/b2876fa7-2e68-4eab-9f05-38dabfebc015)
+![Image text](https://i.imgur.com/EkMshTW.png)
 
 https://www.mohuawang.com/
 https://mxcity58.znhar.cn/
